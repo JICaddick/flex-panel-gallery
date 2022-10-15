@@ -1,0 +1,1 @@
+Pending: Image & word changes.
